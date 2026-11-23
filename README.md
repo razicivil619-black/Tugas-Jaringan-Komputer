@@ -1,0 +1,1 @@
+[101_Fahrurrazi_Tugas1_ResumeModul1_Jaringan_Komputer.pdf](https://github.com/user-attachments/files/35283687/101_Fahrurrazi_Tugas1_ResumeModul1_Jaringan_Komputer.pdf)
